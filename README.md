@@ -12,7 +12,7 @@
 
 ·
 
-其他书籍：[亲爱的提奥](https://book.douban.com/subject/4903265/)，[亲爱的贝尔纳](https://book.douban.com/subject/6903266/)，[梵高手稿](https://book.douban.com/subject/26666533/)
+其他书籍：[亲爱的提奥](https://book.douban.com/subject/4903265/)，[亲爱的贝尔纳](https://book.douban.com/subject/6903266/)，[梵高手稿](https://book.douban.com/subject/26666533/)，[渴望生活](https://book.douban.com/subject/3054821/)
 
 ·
 
@@ -22,6 +22,13 @@
 [豆瓣：至爱梵高·星空之谜 Loving Vincent](https://movie.douban.com/subject/25837262/)
 
 [某度下载：提取码：nxas](https://pan.baidu.com/s/1W1v8aSF3Qq9OMzxFj2Ma-g)
+
+·
+
+[纪录片-艺术的力量-梵高篇](https://v.qq.com/x/cover/ocdr88u986p5kia/i0015lkaxxo.html)
+·
+
+[梵高与博士 - 神秘博士第五季第十集 提取码：asix](https://pan.baidu.com/s/16e1z0Oh0g01mL0mpDy6wAQ )
 
 ·
 
@@ -35,9 +42,9 @@
 
 [某度下载：提取码 ：1e26](https://pan.baidu.com/s/1FEYXs0_V8EfdG4tXRuu7UQ )
 
-·
 
-## 资源：
+
+## 作品资源：
 
 [某宝：梵高高清版本合集](https://item.taobao.com/item.htm?spm=a1z10.1-c-s.w137644-22423694842.41.7eb42aa8R1e4S4&id=611590636076)
 
@@ -46,6 +53,12 @@
 ·
 
 ## 更多梵高资料整理帖子：
+[梵高先生 - 十也艺术](https://www.douban.com/note/648645804/)
+
+[梵高之死 - 十也艺术](https://movie.douban.com/review/8982606/)
+
+[梵高割耳之谜](https://book.douban.com/review/9361168/)
+
 [梵高电影宇宙指南 —— “但你有多了解他的人生？”](https://movie.douban.com/review/8922482/)
 
 [《一千个梵高》——各类相关资源信息汇总 最完整版](https://tieba.baidu.com/p/5253319573)
@@ -54,11 +67,13 @@
 
 ## 其他网站
 
+[梵高传主题网站 史蒂芬·奈菲团队打造 ](http://www.vangoghbiography.com/)
+
 [Van Gogh Gallery 梵高画廊](https://www.vangoghgallery.com/)
 
 [Van Gogh Museum 梵高博物馆](https://www.vangoghmuseum.nl/en)
 
-[The life and art of Vinvent 梵高的艺术和时候](http://lifeofvangogh.com/the-life-and-art-of-vincent-van-gogh/)
+[The life and art of Vinvent 梵高的艺术和生活](http://lifeofvangogh.com/the-life-and-art-of-vincent-van-gogh/)
 
 ·
 
