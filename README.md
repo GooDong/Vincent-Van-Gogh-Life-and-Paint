@@ -69,6 +69,8 @@
 
 [梵高传主题网站 史蒂芬·奈菲团队打造 ](http://www.vangoghbiography.com/)
 
+[梵高书信全集](http://vangoghletters.org/vg/)
+
 [Van Gogh Gallery 梵高画廊](https://www.vangoghgallery.com/)
 
 [Van Gogh Museum 梵高博物馆](https://www.vangoghmuseum.nl/en)
