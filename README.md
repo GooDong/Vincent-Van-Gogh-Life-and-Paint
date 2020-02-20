@@ -10,7 +10,11 @@
 
 [豆瓣：这就是凡·高<乔治·罗达姆> —— 入门选读](https://book.douban.com/subject/26834573/)
 
+·
+
 其他书籍：[亲爱的提奥](https://book.douban.com/subject/4903265/)，[亲爱的贝尔纳](https://book.douban.com/subject/6903266/)，[梵高手稿](https://book.douban.com/subject/26666533/)
+
+·
 
 
 
@@ -19,19 +23,19 @@
 
 [某度下载：提取码：nxas](https://pan.baidu.com/s/1W1v8aSF3Qq9OMzxFj2Ma-g)
 
-
+·
 
 [豆瓣：失窃的梵高之作 Stealing Van Gogh](https://movie.douban.com/subject/30128978/)
 
 [某度下载：提取码 ：fif4](https://pan.baidu.com/s/1YDFu97nnFrbegHZ8d0Yy7Q )
 
-
+·
 
 [豆瓣：盗梦特工队](https://movie.douban.com/subject/30272143/)
 
 [某度下载：提取码 ：1e26](https://pan.baidu.com/s/1FEYXs0_V8EfdG4tXRuu7UQ )
 
-
+·
 
 ## 资源：
 
@@ -39,14 +43,24 @@
 
 [某宝:梵高一生作品合集，油画/素描/早期作品/书信插画](https://item.taobao.com/item.htm?spm=a1z10.1-c-s.w137644-22423694842.39.7eb42aa8R1e4S4&id=611590356280)
 
-
+·
 
 ## 更多梵高资料整理帖子：
 [梵高电影宇宙指南 —— “但你有多了解他的人生？”](https://movie.douban.com/review/8922482/)
 
 [《一千个梵高》——各类相关资源信息汇总 最完整版](https://tieba.baidu.com/p/5253319573)
 
+·
 
+## 其他网站
+
+[Van Gogh Gallery 梵高画廊](https://www.vangoghgallery.com/)
+
+[Van Gogh Museum 梵高博物馆](https://www.vangoghmuseum.nl/en)
+
+[The life and art of Vinvent 梵高的艺术和时候](http://lifeofvangogh.com/the-life-and-art-of-vincent-van-gogh/)
+
+·
 
 ## 找到同好
 
