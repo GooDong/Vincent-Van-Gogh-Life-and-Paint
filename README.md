@@ -16,8 +16,6 @@
 
 ·
 
-
-
 ## 电影：
 [豆瓣：至爱梵高·星空之谜 Loving Vincent](https://movie.douban.com/subject/25837262/)
 
@@ -46,6 +44,10 @@
 
 ## 梵高画作图片资源：
 
+[灵感家：梵高作品全集在线查看](http://www.lingganjia.com/view/100131.htm)
+
+[豆瓣相册：梵高相册](https://www.douban.com/photos/album/100224852/?m_start=558)
+
 [某宝：梵高高清版本合集](https://item.taobao.com/item.htm?spm=a1z10.1-c-s.w137644-22423694842.41.7eb42aa8R1e4S4&id=611590636076)
 
 [某宝:梵高一生作品合集，油画/素描/早期作品/书信插画](https://item.taobao.com/item.htm?spm=a1z10.1-c-s.w137644-22423694842.39.7eb42aa8R1e4S4&id=611590356280)
@@ -62,6 +64,10 @@
 [梵高电影宇宙指南 —— “但你有多了解他的人生？”](https://movie.douban.com/review/8922482/)
 
 [《一千个梵高》——各类相关资源信息汇总 最完整版](https://tieba.baidu.com/p/5253319573)
+
+[凡高生平绘本](https://www.douban.com/note/243129120/)
+
+[梵高自画像超写实复原](https://mp.weixin.qq.com/s/Ijaz8lEF7KDj7K7t7AR53w)
 
 ·
 
@@ -80,6 +86,8 @@
 [梵高书信全集](http://vangoghletters.org/vg/)
 
 [Van Gogh Gallery 梵高画廊](https://www.vangoghgallery.com/)
+
+[Van Gogh Gallery 梵高画廊 - 中文版本](http://www.vggallery.com/international/chinese/index.html)
 
 [Van Gogh Museum 梵高博物馆](https://www.vangoghmuseum.nl/en)
 
