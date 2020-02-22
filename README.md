@@ -24,6 +24,11 @@
 ·
 
 [纪录片-艺术的力量-梵高篇](https://v.qq.com/x/cover/ocdr88u986p5kia/i0015lkaxxo.html)
+
+·
+
+[BBC：画语人生<梵高> 本尼迪克特·康伯巴奇](https://www.iqiyi.com/v_19rrkx4gi8.html?vfm=m_502_sgss&fv=bf562ffc1cd15119)
+
 ·
 
 [梵高与博士 - 神秘博士第五季第十集 提取码：asix](https://pan.baidu.com/s/16e1z0Oh0g01mL0mpDy6wAQ )
@@ -33,6 +38,12 @@
 [豆瓣：失窃的梵高之作 Stealing Van Gogh](https://movie.douban.com/subject/30128978/)
 
 [某度下载：提取码 ：fif4](https://pan.baidu.com/s/1YDFu97nnFrbegHZ8d0Yy7Q )
+
+·
+
+[豆瓣：黑泽明-梦](https://movie.douban.com/subject/1299112/)
+
+[黑泽明-梦-麦田与乌鸦之梦  提取码：sry3](https://pan.baidu.com/s/1A_1rTwVlMaOW6YF4DZtICA )
 
 ·
 
