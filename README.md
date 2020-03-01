@@ -1,5 +1,41 @@
 # 梵高及其画风的发展
 
+---
+
+## 主要网站
+
+[梵高传主题网站 史蒂芬·奈菲团队打造 ](http://www.vangoghbiography.com/)
+
+[梵高书信全集](http://vangoghletters.org/vg/)
+
+[梵高作品在线赏析 Van Gogh Gallery 梵高画廊](https://www.vangoghgallery.com/)
+
+[梵高作品在线赏析Van Gogh Gallery 梵高画廊 - 中文版本](http://www.vggallery.com/international/chinese/index.html)
+
+[梵高作品在线赏析 - 灵感家](http://www.lingganjia.com/view/121180.htm#1884)
+
+[Van Gogh Museum 梵高博物馆](https://www.vangoghmuseum.nl/en)
+
+[The life and art of Vinvent 梵高的艺术和生活](http://lifeofvangogh.com/the-life-and-art-of-vincent-van-gogh/)
+
+[豆瓣相册：梵高相册](https://www.douban.com/photos/album/100224852/?m_start=558)
+
+[wikiart 梵高1931张画作 需要梯子](https://www.wikiart.org/en/vincent-van-gogh)
+
+
+
+---
+
+## 梵高画作图片资源
+
+[下载:梵高作品高清版本合集 670张](https://item.taobao.com/item.htm?spm=a1z10.1-c-s.w137644-22423694842.41.7eb42aa8R1e4S4&id=611590636076)
+
+[下载:梵高一生作品合集，油画/素描/早期作品/书信插画 2000张](https://item.taobao.com/item.htm?spm=a1z10.1-c-s.w137644-22423694842.39.7eb42aa8R1e4S4&id=611590356280)
+
+
+
+---
+
 ## 书籍：
 
 [豆瓣：梵高传<史蒂芬·奈菲> —— 目前最新最客观的传记，后附网站](https://book.douban.com/subject/26354318/	)
@@ -16,82 +52,39 @@
 
 其他书籍：[亲爱的提奥 - 书信](https://book.douban.com/subject/4903265/)，[亲爱的贝尔纳-书信](https://book.douban.com/subject/6903266/)，[梵高手稿](https://book.douban.com/subject/26666533/)，[梵高书信全集](https://book.douban.com/subject/26804113/)
 
-
-
 ---
+
+
+
+## 单幅画作解析
+
+[吃土豆的人](https://www.bilibili.com/video/av92362855/)
+
+[像僧侣的自画像 想给高更](https://www.bilibili.com/video/av92548082/)
+
+
 
 ## 电影：
-[豆瓣：至爱梵高·星空之谜 Loving Vincent](https://movie.douban.com/subject/25837262/)
 
-[某度下载：提取码：nxas](https://pan.baidu.com/s/1W1v8aSF3Qq9OMzxFj2Ma-g)
+@[至爱梵高·星空之谜 Loving Vincent 下载：提取码：nxas](https://pan.baidu.com/s/1W1v8aSF3Qq9OMzxFj2Ma-g)
 
-·
+@[BBC纪录片-艺术的力量-梵高篇](https://v.qq.com/x/cover/ocdr88u986p5kia/i0015lkaxxo.html)
 
-[BBC纪录片-艺术的力量-梵高篇](https://v.qq.com/x/cover/ocdr88u986p5kia/i0015lkaxxo.html)
+@[BBC纪录片-梵高的耳朵  解密梵高割耳之谜](https://www.iqiyi.com/v_19rr9dzzz4.html)
 
-·
+@[BBC：画语人生<梵高> 本尼迪克特·康伯巴奇](https://www.iqiyi.com/v_19rrkx4gi8.html?vfm=m_502_sgss&fv=bf562ffc1cd15119)
 
-[BBC纪录片-梵高的耳朵  解密梵高割耳之谜](https://www.iqiyi.com/v_19rr9dzzz4.html)
+@[梵高与博士 - 神秘博士第五季第十集 提取码：asix](https://pan.baidu.com/s/16e1z0Oh0g01mL0mpDy6wAQ )
 
-·
+@[Who Was Vincent Van Gogh (英语 无字幕 ) 提取码：3uwq](https://pan.baidu.com/s/16PyESpmuhpGTqVfP9FcE0g )
 
-[BBC：画语人生<梵高> 本尼迪克特·康伯巴奇](https://www.iqiyi.com/v_19rrkx4gi8.html?vfm=m_502_sgss&fv=bf562ffc1cd15119)
+@[失窃的梵高之作 下载：提取码 ：fif4](https://pan.baidu.com/s/1YDFu97nnFrbegHZ8d0Yy7Q )
 
-·
+@[黑泽明-梦-麦田与乌鸦之梦 下载  提取码：sry3](https://pan.baidu.com/s/1A_1rTwVlMaOW6YF4DZtICA )
 
-[梵高与博士 - 神秘博士第五季第十集 提取码：asix](https://pan.baidu.com/s/16e1z0Oh0g01mL0mpDy6wAQ )
+@[盗梦特工队 下载：提取码 ：1e26](https://pan.baidu.com/s/1FEYXs0_V8EfdG4tXRuu7UQ )
 
-·
 
-[Who Was Vincent Van Gogh (英语 无字幕 ) 提取码：3uwq](https://pan.baidu.com/s/16PyESpmuhpGTqVfP9FcE0g )
-
-·
-
-[豆瓣：失窃的梵高之作 Stealing Van Gogh](https://movie.douban.com/subject/30128978/)
-
-[某度下载：提取码 ：fif4](https://pan.baidu.com/s/1YDFu97nnFrbegHZ8d0Yy7Q )
-
-·
-
-[豆瓣：黑泽明-梦](https://movie.douban.com/subject/1299112/)
-
-[黑泽明-梦-麦田与乌鸦之梦  提取码：sry3](https://pan.baidu.com/s/1A_1rTwVlMaOW6YF4DZtICA )
-
-·
-
-[豆瓣：盗梦特工队](https://movie.douban.com/subject/30272143/)
-
-[某度下载：提取码 ：1e26](https://pan.baidu.com/s/1FEYXs0_V8EfdG4tXRuu7UQ )
-
----
-
-## 梵高画作图片资源：
-
-[灵感家：梵高作品全集在线查看](http://www.lingganjia.com/view/100131.htm)
-
-[豆瓣相册：梵高相册](https://www.douban.com/photos/album/100224852/?m_start=558)
-
-[某宝：梵高高清版本合集](https://item.taobao.com/item.htm?spm=a1z10.1-c-s.w137644-22423694842.41.7eb42aa8R1e4S4&id=611590636076)
-
-[某宝:梵高一生作品合集，油画/素描/早期作品/书信插画](https://item.taobao.com/item.htm?spm=a1z10.1-c-s.w137644-22423694842.39.7eb42aa8R1e4S4&id=611590356280)
-
----
-
-## 其他网站
-
-[梵高传主题网站 史蒂芬·奈菲团队打造 ](http://www.vangoghbiography.com/)
-
-[梵高书信全集](http://vangoghletters.org/vg/)
-
-[Van Gogh Gallery 梵高画廊](https://www.vangoghgallery.com/)
-
-[Van Gogh Gallery 梵高画廊 - 中文版本](http://www.vggallery.com/international/chinese/index.html)
-
-[Van Gogh Museum 梵高博物馆](https://www.vangoghmuseum.nl/en)
-
-[The life and art of Vinvent 梵高的艺术和生活](http://lifeofvangogh.com/the-life-and-art-of-vincent-van-gogh/)
-
-[梵高作品在线赏析 - 灵感家](http://www.lingganjia.com/view/121180.htm#1884)
 
 ---
 
@@ -110,6 +103,8 @@
 
 [梵高自画像超写实复原](https://mp.weixin.qq.com/s/Ijaz8lEF7KDj7K7t7AR53w)
 
+
+
 ---
 
 # 衍生作品
@@ -117,6 +112,8 @@
 [漫画：凡·高的手法讲述凡·高的故事，漫画与绘画艺术的完美结合](https://book.douban.com/subject/27174509/)
 
 [漫画：宛如凡·高亲手所绘的图像世界](https://book.douban.com/subject/27194696/)
+
+
 
 ---
 
