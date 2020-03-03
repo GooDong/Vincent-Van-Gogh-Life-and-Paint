@@ -2,31 +2,35 @@
 
 ---
 
-## 主要网站
-
-[梵高传主题网站 史蒂芬·奈菲团队打造 ](http://www.vangoghbiography.com/)
-
-[梵高书信全集](http://vangoghletters.org/vg/)
+## 梵高在线相册
 
 [梵高作品在线赏析 Van Gogh Gallery 梵高画廊](https://www.vangoghgallery.com/)
 
 [梵高作品在线赏析Van Gogh Gallery 梵高画廊 - 中文版本](http://www.vggallery.com/international/chinese/index.html)
 
+[wikiart 梵高1931张画作](https://www.wikiart.org/en/vincent-van-gogh)
+
+[豆瓣相册：梵高相册](https://www.douban.com/photos/album/100224852/?m_start=558)
+
 [梵高作品在线赏析 - 灵感家](http://www.lingganjia.com/view/121180.htm#1884)
+
+
+
+## 梵高生平相关网站
+
+[梵高传主题网站 史蒂芬·奈菲团队打造 ](http://www.vangoghbiography.com/)
+
+[梵高书信全集](http://vangoghletters.org/vg/)
 
 [Van Gogh Museum 梵高博物馆](https://www.vangoghmuseum.nl/en)
 
 [The life and art of Vinvent 梵高的艺术和生活](http://lifeofvangogh.com/the-life-and-art-of-vincent-van-gogh/)
 
-[豆瓣相册：梵高相册](https://www.douban.com/photos/album/100224852/?m_start=558)
-
-[wikiart 梵高1931张画作 需要梯子](https://www.wikiart.org/en/vincent-van-gogh)
-
 
 
 ---
 
-## 梵高画作图片资源
+## 梵高画作图片资源下载
 
 [下载:梵高作品高清版本合集 670张](https://item.taobao.com/item.htm?spm=a1z10.1-c-s.w137644-22423694842.41.7eb42aa8R1e4S4&id=611590636076)
 
@@ -62,9 +66,11 @@
 
 [像僧侣的自画像 想给高更](https://www.bilibili.com/video/av92548082/)
 
+[在阿尔勒的卧室](https://www.bilibili.com/video/av92810025/)
 
 
-## 电影：
+
+## 电影在线/下载：
 
 @[至爱梵高·星空之谜 Loving Vincent 下载：提取码：nxas](https://pan.baidu.com/s/1W1v8aSF3Qq9OMzxFj2Ma-g)
 
