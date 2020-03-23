@@ -14,8 +14,6 @@
 
 [梵高作品在线赏析 - 灵感家](http://www.lingganjia.com/view/121180.htm#1884)
 
-[athenaeum](http://www.the-athenaeum.org/art/detail.php?ID=37918)
-
 
 
 ## 梵高生平相关网站
@@ -64,11 +62,19 @@
 
 ## 单幅画作解析
 
-[吃土豆的人](https://www.bilibili.com/video/av92362855/)
+[早期杰作：吃土豆的人](https://www.bilibili.com/video/av92362855/)
 
-[像僧侣的自画像 想给高更](https://www.bilibili.com/video/av92548082/)
+[另类自画像：像僧侣的自画像 献给高更](https://www.bilibili.com/video/av92548082/)
 
-[在阿尔勒的卧室](https://www.bilibili.com/video/av92810025/)
+[温馨一刻：在阿尔勒的卧室](https://www.bilibili.com/video/av92810025/)
+
+[梵高 | 向日葵 - 黄色的交响，不止燃烧的生命](https://zhuanlan.zhihu.com/p/115470522)
+
+[梵高 | 抵御死亡与疯狂 - 有绷带和烟斗的自画像](https://zhuanlan.zhihu.com/p/113410927)
+
+[梵高作品解析：夜间咖啡馆 丑出天际的杰作](https://zhuanlan.zhihu.com/p/112959342)
+
+[勇气与智慧之作：星空](https://zhuanlan.zhihu.com/p/112356904)
 
 
 
@@ -120,6 +126,16 @@
 [漫画：凡·高的手法讲述凡·高的故事，漫画与绘画艺术的完美结合](https://book.douban.com/subject/27174509/)
 
 [漫画：宛如凡·高亲手所绘的图像世界](https://book.douban.com/subject/27194696/)
+
+
+
+# 其他网站
+
+ [梵高主题网站1](http://www.vincent-van-gogh.net/)
+
+[梵高主题网站2](https://www.vincentvangogh.org/)
+
+[athenaeum](http://www.the-athenaeum.org/art/detail.php?ID=37918)
 
 
 
